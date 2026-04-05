@@ -9,7 +9,7 @@ Puntualmente este sería mi tercer cuatrimestre de la carrera de Tecnicatura Uni
 
 ### ¿Por qué esta carrera y no otra?
 Desde siempre la informatica y la programación puntualmente fue algo que me llamaba muchísimo la atención, pero por razones de la vida termine estudiando para ser profesor de matemática y postergando para más adelante esta carrera.
-Luego de 2 años, y con mucha incertidumbre al respecto, me termine anotando para arrancar la tan ansiada carrera desde siempre. La cuestión es ¿por qué la elegí?, principalmente se debe a mis ansias de programas informáticos que tengan una utilidad para las personas, y que no solo se quede en conocimiento vago que no tiene un fin alguno.
+Luego de 2 años, y con mucha incertidumbre al respecto, me termine anotando para arrancar la tan ansiada carrera desde siempre. La cuestión es ¿por qué la elegí?, principalmente se debe a mis ansias de que lo que llegue a programar tenga una utilidad concreta para las personas, y no solo se quede en quede en conocimiento vago que no tiene un fin alguno.
 
 ### Mis gustos
 - En mis tiempos libres me gusta jugar videojuegos, especialmente aquellos del género shooter, y ver animé
